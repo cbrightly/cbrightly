@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-[b][u]Contents[/u][/b]:
+<b><u>Contents</u]</b>:
 [💣🛜] + [🥽🛰️] + [🧪💻🎹] + [🔬☎️] + [₿+🛜💰]
 
 [b][u]Introduction[/u][/b]:
