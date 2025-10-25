@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 <b><u>Contents</u></b>:
 [💣🛜] + [🥽🛰️] + [🧪💻🎹] + [🔬☎️] + [₿+🛜💰]
 
-<b><u<Introduction</u></b>:
+<b><u>Introduction</u></b>:
 👋🌐! 🆓🤔 + 🏴‍☠️🗯️ 🙏🏻.
 
 <b><u>About Me</u></b>:
